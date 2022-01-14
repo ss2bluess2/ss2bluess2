@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ss2bluess2
-- 👀 I’m interested in ...moneyInformation Technology
+- 👀 I’m interested in money
 - 🌱 I’m currently learning Information Technology
-- 💞️ Tôi đang muốn cộng tác trên ...
-- 📫 Làm thế nào để liên kết với tôi: gohan98sc1 @ gmail.com
+- 💞️ I want to be rich
+- 📫 How to link to me: gohan98sc1@gmail.com
