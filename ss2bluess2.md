@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ss2bluess2
+- 👋 Hi, I am @ss2bluess2
 - 👀 I’m interested in money
 - 🌱 I’m currently learning Information Technology
 - 💞️ I want to be rich
